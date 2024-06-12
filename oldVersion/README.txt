@@ -1,0 +1,1 @@
+Hong-Tri Nguyen aka (Hong3Nguyen) or shorted "Tri", this is a site about him.
